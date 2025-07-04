@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Phiraien
--i wanna eat
 -i dont like to code:)
 -lets collab sometime;)
 
